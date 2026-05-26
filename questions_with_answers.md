@@ -118,7 +118,7 @@ Hot Area:
 
 ![](images/c1e66141-1407-4fae-a798-aba5db428500.jpg)
 
-**Answer(s):** A
+**Answer(s):** C
 
 ##### **Explanation:**
 
